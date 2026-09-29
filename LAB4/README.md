@@ -1,6 +1,5 @@
 
 
-HÔNG TIN TINH VIÊN
 Họ và tên: Lê Thị Anh Thư
 MSSV: 1150070042
 Lớp: 11TMĐT
